@@ -1,1 +1,1 @@
-https://ClodMane.github.io/rsschool-cv/cv
+https://ClodMane.github.io/rsschool-cv/
