@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ClodMane.github.io/rsschool-cv/
